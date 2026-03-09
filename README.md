@@ -1,1 +1,0 @@
-# hophanmac.github.io
